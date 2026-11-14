@@ -1,0 +1,1 @@
+# Veritas-AI-Hackathon-2026
